@@ -1,1 +1,1 @@
-# Vitali-Zimnitski-CV
+# Vitali Zimnitski CV
